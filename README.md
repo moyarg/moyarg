@@ -18,5 +18,5 @@ check out my strawpage for more info abt me and my sign my atabook!
 i <b>love love love</b> making new friends!! <b>w2i</b> to get my attention as i am usually off tab!!!
 <br>
 <p align="center"> <img width="150" src="https://64.media.tumblr.com/04eff1963472c1d41a3259a3812fe3b1/e9393316f64673f2-93/s250x400/ea462f90e780e813c9361d6b538c1d78831895db.gifv"> <img width="150" src="https://64.media.tumblr.com/4795ef07f76fbbbc89aba45006714a43/e9393316f64673f2-9d/s250x400/af6ab6cb5364a6a6189a6cb3dbe0ba5c9dc21cca.gifv"> <img width="150" src="https://64.media.tumblr.com/39213d0c973189252139b08f321003ab/e9393316f64673f2-90/s250x400/5f7c3da0dc905dae3dd81e5bd1afae4074b898e8.gifv">
-<br> <br>
+<br> 
 <p aign="center"> <img width="900" src="https://64.media.tumblr.com/c40b524458f1d2e0c6b962c2d6cbdbad/bb784b7deb99ecca-62/s1280x1920/507f83b388a7f64b10d0d0815ab146c0c8b27557.pnj">
